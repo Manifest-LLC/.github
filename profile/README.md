@@ -17,3 +17,8 @@ These integrated solutions are designed to work seamlessly, making us the ultima
 What sets us apart is our holistic approach to logistics solutions. At Manifest, you don't have to juggle multiple vendors or struggle with incompatible systems; our platform gives you everything you need to manage your logistics, all in one place. The efficiency and streamlined operations that come with our full ecosystem translate to cost savings and a competitive edge for our clients.
 
 Our team has a proven track record in establishing successful logistics companies and startups. Armed with a wealth of industry expertise, we understand the unique challenges faced by last-mile companies. It's this experience that fuels our commitment to delivering unparalleled, integrated logistics solutions.
+
+-----
+
+Manifest Solutions LLC  <br/> Dubai, United Arab Emirates
+support@manifest.st
